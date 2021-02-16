@@ -1,2 +1,6 @@
 # 3rd-try
-another one
+try again
+
+bake it til u make it
+shake n cake
+hike n sike
